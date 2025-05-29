@@ -1,0 +1,1 @@
+# S-zl-k-Olu-turma-ve-Manip-lasyon
